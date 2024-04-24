@@ -1,0 +1,1 @@
+# ujikom_nazwa12rpl1
